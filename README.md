@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Whatd0name
-- 👀 I’m interested in Latin culture, Mongolian language, Arabic language.(especially in algerian arabic)
+- 👀 I’m interested in FNF Mod, Latin culture, Mongolian language, Arabic language.(especially in algerian arabic)
 - 🌱 I’m currently learning 'How to make FNF Mod'!
 - 💞️ I’m looking to collaborate to @heartleth
 - 📫 How to reach me: my SNS
